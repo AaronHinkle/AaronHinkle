@@ -1,12 +1,12 @@
 
-## 👩‍💼 Former salesperson turned software enthusiast 🖥️💡##
+## 👩‍💼 Former salesperson turned software enthusiast 🖥️💡 
 
-## 🌟 Passionate about creating innovative software solutions ✨##
+## 🌟 Passionate about creating innovative software solutions ✨
 
-## 💻 Skilled in multiple programming languages and frameworks 💪##
+## 💻 Skilled in multiple programming languages and frameworks 💪
 
-## 📚 Constantly learning and exploring new technologies 🌱##
+## 📚 Constantly learning and exploring new technologies 🌱
 
-## 🤝 Enthusiastic collaborator, eager to work on challenging projects 🚀##
+## 🤝 Enthusiastic collaborator, eager to work on challenging projects 🚀
 
-## 👀 See my projects for examples of my work! 📂 ##
+## 👀 See my projects for examples of my work! 📂 
